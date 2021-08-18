@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @mittaltiger
 - 👀 I’m interested in Websites and Content
-- 📫 I publish Weekly Newsletter on Digital Marketing - https://www.redwebtigers.com
 - You can know more about me at - https://www.multiinternetbrands.in
 
 <!---
